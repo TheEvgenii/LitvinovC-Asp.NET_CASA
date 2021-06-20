@@ -24,4 +24,5 @@ Please let me know if there are any issues with my assignment, and if you need s
 Thank you in advance.
 
 Best regards,
+
 Evgenii Litvinov
